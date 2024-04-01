@@ -11,5 +11,3 @@
 
 ![Screen Shot 2024-04-01 at 10 38 11 AM](https://github.com/VishvaManvar/wedding_planer/assets/165630099/d14fc869-7526-4f0c-8e83-1cf9b8ad4ccb)![Screen Shot 2024-04-01 at 10 38 24 AM](https://github.com/VishvaManvar/wedding_planer/assets/165630099/ef9cf9d7-871e-4645-a485-33c0c4af4160)
 
-![Screen Shot 2024-04-01 at 10 38 33 AM](https://github.com/VishvaManvar/wedding_plane![Screen Shot 2024-04-01 at 10 38 41 AM](https://github.com/VishvaManvar/wedding_planer/assets/165630099/3d0dd7b4-9e76-4aeb-a808-733763319338)
-r/assets/165630099/cb144b9b-fb4a-417c-af27-108172441f9c)
